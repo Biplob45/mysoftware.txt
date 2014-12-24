@@ -6,3 +6,6 @@ hello world
 * bullet1
 * bullet2
 * paragraph text here
+...
+puts "This is code"
+if this than that
