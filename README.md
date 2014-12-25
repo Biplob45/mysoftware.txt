@@ -28,3 +28,12 @@ https://www.mozilla.org/en-US/firefox/new/?scene=2#download-fx
 
 
 http://127.0.0.1:8000/
+
+www.youtube.com
+
+www.amarnatok.com
+
+www.prothomalo.com
+
+www.amardesh.com
+
