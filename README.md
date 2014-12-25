@@ -49,6 +49,8 @@ http://mahbubzaman.wordpress.com/2014/03/28/%E0%A6%9F%E0%A6%BE%E0%A6%B0%E0%A7%8D
 
 https://plus.google.com/+EnamMijbahNoor/posts
 
+http://www.methods.co.nz/asciidoc/article.txt
+
 http://blog.salearningschool.com/github-git-and-creating-an-internet-traffic-system/
 
 
