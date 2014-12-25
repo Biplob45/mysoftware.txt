@@ -26,6 +26,13 @@ https://mail.google.com/mail/#inbox/14a773d6d1625770
 
 https://www.mozilla.org/en-US/firefox/new/?scene=2#download-fx
 
+http://www.linuxmint.com/start/qiana/
+
+
+http://www.emoji-cheat-sheet.com/
+http://www.emoji-cheat-sheet.com/
+http://www.emoji-cheat-sheet.com/
+
 
 http://blog.salearningschool.com/github-git-and-creating-an-internet-traffic-system/?subscribe=success#blog_subscription-2
 
