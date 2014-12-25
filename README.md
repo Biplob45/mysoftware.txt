@@ -26,6 +26,8 @@ https://mail.google.com/mail/#inbox/14a773d6d1625770
 
 https://www.mozilla.org/en-US/firefox/new/?scene=2#download-fx
 
+http://www.amazon.com/gp/feature.html?ie=UTF8&docId=1000765211
+
 https://www.google.com/search?q=git-scribe&gws_rd=ssl
 
 http://www.linuxmint.com/start/qiana/
