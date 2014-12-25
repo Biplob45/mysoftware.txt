@@ -27,6 +27,8 @@ https://mail.google.com/mail/#inbox/14a773d6d1625770
 https://www.mozilla.org/en-US/firefox/new/?scene=2#download-fx
 
 
+http://pydev.org/video_pydev_20.html
+
 
 http://pybangla.appspot.com/
 
