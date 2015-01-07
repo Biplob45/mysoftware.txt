@@ -30,6 +30,8 @@ http://www.amazon.com/gp/feature.html?ie=UTF8&docId=1000765211
 
 https://www.google.com/search?q=git-scribe&gws_rd=ssl
 
+
+
 http://www.linuxmint.com/start/qiana/
 
 
@@ -81,3 +83,4 @@ https://gist.github.com/
 
 https://gist.github.com/BiplobOrton14/ee0d2b485745d33bbecf
 
+http://www.shodalap.org/category/islam/
