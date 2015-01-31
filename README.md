@@ -88,12 +88,13 @@ https://gist.github.com/BiplobOrton14/ee0d2b485745d33bbhttp://onhax.net/tag/conv
 
 http://www.shodalap.org/category/islam/
 
+(picture mode change korar jonno
 
 http://image.online-convert.com/convert-to-ico
 
 
 http://www.online-convert.com/result/d1d03ada8acade6d77b5f701960ad790
-
+)
 
 http://kickass.so/
 
@@ -102,3 +103,8 @@ https://www.youtube.com/watch?x-yt-ts=1422579428&v=LBXP8EpItSg&x-yt-cl=85114404
 http://www.tune-up.com/en/services/whats-new/tuu2014/
 
 http://onhax.net/tag/convert-torrent-to-idm/
+
+torrent teke download korar jonno 
+(http://kickass.so/
+
+https://www.zbigz.com/)
