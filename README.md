@@ -92,3 +92,10 @@ http://image.online-convert.com/convert-to-ico
 
 
 http://www.online-convert.com/result/d1d03ada8acade6d77b5f701960ad790
+
+
+http://kickass.so/
+
+https://www.youtube.com/watch?x-yt-ts=1422579428&v=LBXP8EpItSg&x-yt-cl=85114404
+
+http://www.tune-up.com/en/services/whats-new/tuu2014/
