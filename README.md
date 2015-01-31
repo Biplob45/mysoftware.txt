@@ -30,6 +30,7 @@ http://www.amazon.com/gp/feature.html?ie=UTF8&docId=1000765211
 
 https://www.google.com/search?q=git-scribe&gws_rd=ssl
 
+
 http://www.filehippo.com/download_utorrent
 
 
@@ -83,7 +84,7 @@ www.amardesh.com
 
 https://gist.github.com/
 
-https://gist.github.com/BiplobOrton14/ee0d2b485745d33bbecf
+https://gist.github.com/BiplobOrton14/ee0d2b485745d33bbhttp://onhax.net/tag/convert-torrent-to-idm/ecf
 
 http://www.shodalap.org/category/islam/
 
@@ -99,3 +100,5 @@ http://kickass.so/
 https://www.youtube.com/watch?x-yt-ts=1422579428&v=LBXP8EpItSg&x-yt-cl=85114404
 
 http://www.tune-up.com/en/services/whats-new/tuu2014/
+
+http://onhax.net/tag/convert-torrent-to-idm/
