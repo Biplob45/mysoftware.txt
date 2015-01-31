@@ -108,3 +108,8 @@ torrent teke download korar jonno
 (http://kickass.so/
 
 https://www.zbigz.com/)
+
+(torrent teke jekuno kicu download kora jabe
+
+http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
+)
