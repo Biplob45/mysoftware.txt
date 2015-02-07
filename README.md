@@ -146,5 +146,16 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 26.https://www.youtube.com/watch?v=HMmNYm8sZpI(Facebook Autolike - Bangla Tutorial (100%working) (No Spam) )
 27.https://www.youtube.com/watch?v=_s-X8bYjQZ8(How to create a gmail account in bangla ( বাংলায় জিমেইল একাউন্ট খোলা))
 28.https://www.youtube.com/watch?v=OhyKZ5J_bs0(How to setup/Install windows 7, in bangla )
+29.https://www.youtube.com/watch?v=PtrblWulnRA(icrosoft Word 2007 Complete Bangla Video Tutorial 1 .mp4)
+30.https://www.youtube.com/watch?v=7mkjUIKt9tM(Photoshop Tutorial How to create a passport size photo Bangla voiceBy Nahid )
+
+
+
+
+
+
+
+
+
 
 )
