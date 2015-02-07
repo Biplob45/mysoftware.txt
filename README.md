@@ -139,9 +139,12 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 19.https://www.youtube.com/watch?v=q3nmoFSU1qQ(Bangladeshi hackers.দেখুন কিভাবে ফেইসবুক, স্কাইপি, আরও অনেক কিছু)
 20.https://www.youtube.com/watch?v=BBAhDkCftsw(ফেসবুকে আপনার বন্ধুর পাসওয়ার্ড হ্যাক করবেন কিভাবে)
 21.http://www.shikkhok.com/%E0%A6%95%E0%A7%8B%E0%A6%B0%E0%A7%8D%E0%A6%B8-%E0%A6%A4%E0%A6%BE%E0%A6%B2%E0%A6%BF%E0%A6%95%E0%A6%BE/basic-website-design/
-22.
-
-
-
+22.https://www.youtube.com/watch?v=Act4Wba4xec(facebook group marekting bangla video)
+23.https://www.youtube.com/watch?v=81nDlitCuNk(how to earn money from youtube in bangla)
+24.https://www.youtube.com/watch?v=QMYXIdQnmvY(How to make money from facebook, google plus and twitter in Bangla )
+25.https://www.youtube.com/watch?v=oVfHeWTKjag(Facebook Fraud )
+26.https://www.youtube.com/watch?v=HMmNYm8sZpI(Facebook Autolike - Bangla Tutorial (100%working) (No Spam) )
+27.https://www.youtube.com/watch?v=_s-X8bYjQZ8(How to create a gmail account in bangla ( বাংলায় জিমেইল একাউন্ট খোলা))
+28.https://www.youtube.com/watch?v=OhyKZ5J_bs0(How to setup/Install windows 7, in bangla )
 
 )
