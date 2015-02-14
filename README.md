@@ -151,8 +151,10 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 
 
 
+**(https://try.github.io/levels/1/challenges/1)(about git)
 
 
+**(http://git-scm.com/book/en/v2)(git book)
 
 
 
