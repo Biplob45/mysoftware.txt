@@ -176,7 +176,10 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 **(https://www.youtube.com/user/Mashruf31/videos)(JAVA)
 
 
+**(https://www.youtube.com/watch?v=jjvf4U1jvhY)( java netbeans)
 
+**(https://www.youtube.com/watch?v=jWTjHmuuvJs)(java)
+**(https://www.youtube.com/watch?v=3u1fu6f8Hto)(java)
 
 
 
