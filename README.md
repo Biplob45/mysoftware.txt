@@ -164,6 +164,26 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 
 **(http://www.shikkhok.com/%E0%A6%95%E0%A7%8B%E0%A6%B0%E0%A7%8D%E0%A6%B8-%E0%A6%A4%E0%A6%BE%E0%A6%B2%E0%A6%BF%E0%A6%95%E0%A6%BE/microsoft-excel)(microsoft-excel bangla video)
 
+**(https://www.youtube.com/channel/UC3SQJGfwDOrsRWE3Gd1PZDA/videos)(java bangla tutorial)(notepad)
+
+**( https://www.youtube.com/channel/UC3SQJGfwDOrsRWE3Gd1PZDA/videos)(bangla linux video)
+
+**(http://www.oracle.com/technetwork/java/index.html)(java software download korar jonno)
+
+**(https://www.youtube.com/user/codesake/videos)  The Code Snake
+**(https://www.youtube.com/channel/UC6Mdz8pXnZC6JRXjbRGSCNQ/videos)(Java Tutorial in Bangla NetBeans IDE Add iReports Plugins and Jasper Reports Libraries Struts2 )
+
+**(https://www.youtube.com/user/Mashruf31/videos)(JAVA)
+
+
+
+
+
+
+
+
+
+
 
 
 )
