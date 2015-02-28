@@ -186,7 +186,7 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 
 
 
-
+**(http://www.tangowithdjango.com/book17/chapters/templates_static.html#configuring-the-static-media-directory)(    about django )
 
 
 )
