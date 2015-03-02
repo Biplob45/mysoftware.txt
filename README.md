@@ -193,6 +193,8 @@ http://www.crazyhd.com/index.php?page=signup&act=signup&returnto=
 **(https://www.youtube.com/channel/UCRtC348OS7LDfb0mwh2cmSw)<ABOUT LINUX><LINUX TUTORIAL- BACKUP LAB> ai porjontu download koreci...
 
 
-**(https://www.youtube.com/user/mamun7214/videos)<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
+**(https://www.youtube.com/user/mamun7214/videos
+https://www.youtube.com/user/mosharef100/videos
+)<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
 
 )
