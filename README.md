@@ -212,4 +212,6 @@ https://www.youtube.com/watch?v=wilIPa03j-M(song)
 
 **(https://www.youtube.com/watch?v=71yo3LylYgE)  (powerpoint bangla tutorial)
 
+
+**(http://tanbircox.blogspot.com/2012/01/computer-bangla-e-books.html)
 )
