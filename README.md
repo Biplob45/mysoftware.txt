@@ -216,4 +216,8 @@ https://www.youtube.com/watch?v=wilIPa03j-M(song)
 **(http://tanbircox.blogspot.com/2012/01/computer-bangla-e-books.html)
 
 **(http://bestbanglatutorial.blogspot.com/p/mysql-tutorial_08.html)   (mqsql bangla)
+
+**(http://booksforc.blogspot.com/2013/12/bangla-php-and-mysql-tutorial-ebook.html)
+
+**(http://www.webcoachbd.com/php-database/php-mysql-connect)   
 )
