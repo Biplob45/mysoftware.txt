@@ -220,4 +220,11 @@ https://www.youtube.com/watch?v=wilIPa03j-M(song)
 **(http://booksforc.blogspot.com/2013/12/bangla-php-and-mysql-tutorial-ebook.html)
 
 **(http://www.webcoachbd.com/php-database/php-mysql-connect)   
+
+http://65885.t.mytopgames.net/?pid=t65885(game)
+
+https://codefights.com/practice/He4WtBkScbGzcK335
+
+
+
 )
