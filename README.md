@@ -229,4 +229,6 @@ https://www.youtube.com/user/projuktiteam/videos
 
 **https://www.youtube.com/user/ambujkumar1988/videos(linux mint tutorial)
 
+**http://www.guru99.com/java-tutorial.html  (java tutorial)
+
 )
