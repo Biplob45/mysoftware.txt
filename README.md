@@ -236,4 +236,6 @@ https://www.youtube.com/user/Dave4Slash/videos  (assembly language)
 
 ***https://www.youtube.com/watch?v=aGjL7YXI31Q&list=PLEbnTDJUr_IeHYw_sfBOJ6gk5pie0yP-0  (Algorithms and Data structures)
 
+**https://www.youtube.com/watch?v=kv6jOs0q-OQ  (ORACLA video tutorial)
+
 )
