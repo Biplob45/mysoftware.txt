@@ -240,6 +240,8 @@ https://www.youtube.com/user/Dave4Slash/videos  (assembly language)
 
 
 
-**************http://code.geeksforgeeks.org/index.php(online c/c++/java/python coding)
+**************http://code.geeksforgeeks.org/index.php(online c/c++/java/python coding);;
+
+*************http://www.geeksforgeeks.org/dynamic-programming-set-8-matrix-chain-multiplication/(  ALGORITH ALL TUTORIAL)
 
 )
